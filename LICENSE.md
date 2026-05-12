@@ -1,4 +1,4 @@
-# 
+# Canva for macOS top Extension: batch-processing & video-trimming is the best Canva for macOS extension, featuring batch-processing and video-trimming. Powerful, efficient, and
 
 
 
